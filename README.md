@@ -1,9 +1,9 @@
-## Hi here I'm Moxxie (I struggled making this so hard dont attack me)
+## "Regret is like a poison that eats away at your happiness and well being..."
+
+<img width="559" height="447" alt="image" src="https://github.com/user-attachments/assets/105d9a21-0616-49fc-be5e-a801bdf18930" />
+<img width="447" height="559" alt="image" src="https://github.com/user-attachments/assets/202d791f-9f3f-48b0-b561-68191e45124e" />
 
 
-omg this took so long at it looks ASS
+(Art creds to Kiynette on youtube! ^^)
 
-Please talk with me I'm lonely 🥺
-
-<img width="678" height="368" alt="image" src="https://github.com/user-attachments/assets/b7d4eaf3-af5f-4bf3-a7a8-90db41f77fd7" />
 
