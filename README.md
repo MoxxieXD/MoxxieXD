@@ -11,7 +11,3 @@
 
 <img src="https://github.com/MoxxieXD/MoxxieXD/blob/main/HHbL4n7XEAAs6j--removebg-preview.png?raw=true" alt="HHbL4n7XEAAs6j--removebg-preview.png"/>  
 
-<p align="center">
-  <img src="https://igorkowalczyk.dev" alt="Total Views" />
-</p>
-
