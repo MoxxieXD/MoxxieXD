@@ -1,4 +1,4 @@
-## "Regret is like a poison that eats away at your happiness and well being..."
+## "Hold me, love me, hold me love me, I know I know its hard to see a girl like me..."
 
 <div align="center">
   <h1>˚.⋆꒰১ Yo! I'm Moxxie!໒꒱⋆.˚ </h1>
