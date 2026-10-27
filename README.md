@@ -8,10 +8,9 @@
   <p>₊✩‧₊˚౨ৎ˚₊✩‧₊do note that my ponytown messages do not save and I will message you more than once saying I like your cosplay/pony₊✩‧₊˚౨ৎ˚₊✩‧₊</p>
   <p>₊✩‧₊˚౨ৎ˚₊✩‧₊I also have abandonment issues from past friendships and will get overworried and think you're ignoring me at time₊✩‧₊˚౨ৎ˚₊✩‧₊s</p>
 </div>
+<img src="https://github.com" width="40%"
+<img width="866" height="624" alt="image" src="https://github.com/user-attachments/assets/4672071f-33d5-47df-b804-6c830c6a90c8" />
 
-<p align="left">
-<img src="https://width="866" height="624" alt="image" src="https://github.com/user-attachments/assets/b75d12cf-09a3-43c1-aec9-3ee14b975cd4" />
-</p>
 
 
 
