@@ -9,7 +9,8 @@
   <p>₊✩‧₊˚౨ৎ˚₊✩‧₊I also have abandonment issues from past friendships and will get  over worried and think you're ignoring me at time₊✩‧₊˚౨ৎ˚₊✩‧₊s</p>
 </div>
 
-<img width="735" height="490" alt="image" src="https://github.com/user-attachments/assets/c9fab302-c6cf-42ad-ab46-0f3bc1232d9b" />
+<img width="866" height="624" alt="image" src="https://github.com/user-attachments/assets/d5a1c5cc-dbde-45f4-a552-0d7f5cb226ee" />
+
 
 
 
