@@ -9,5 +9,6 @@
   <p>₊✩‧₊˚౨ৎ˚₊✩‧₊I also have abandonment issues from past friendships and will get overworried and think you're ignoring me at time₊✩‧₊˚౨ৎ˚₊✩‧₊s</p>
 </div>
 
-<img src="https://github.com/MoxxieXD/MoxxieXD/blob/main/HHbL4n7XEAAs6j--removebg-preview.png?raw=true" alt="HHbL4n7XEAAs6j--removebg-preview.png"/>  
+<img width="468" height="655" alt="image" src="https://github.com/user-attachments/assets/e9ccadaf-2c3a-440d-8e1a-3f89cada726f" />
+
 
