@@ -10,6 +10,7 @@
 </div>
 
 
-<img width="397" height="556" alt="image" src="https://github.com/user-attachments/assets/0b08c9bd-092c-4cfa-9133-efb722d611c3" />
+<img width="866" height="624" alt="image" src="https://github.com/user-attachments/assets/f5c2f9f6-a3e6-4459-b996-56fc7dc15e5a" />
+
 
 
