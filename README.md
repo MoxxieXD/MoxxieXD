@@ -1,4 +1,4 @@
-## "Hold me, love me, hold me love me, I know I know its hard to see a girl like me..."
+## "ok but what if...."
 
 <div align="center">
   <h1>˚.⋆꒰১ Yo! I'm Moxxie!໒꒱⋆.˚ </h1>
