@@ -10,8 +10,8 @@
    <p>₊✩‧₊˚౨ৎ˚₊✩‧₊ You cannot copy my cosplays in pt, only take inspo.₊✩‧₊˚౨ৎ˚₊✩‧₊<p>
 
 
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSozBW9XxdhNk2Ua4sC9f2NA1NOzCkRSxUX7LYtGosCqQ&amp;s=10" alt="Cult of the Lamb celebrates its first anniversary - Niche Gamer"/><img width="597" height="335" alt="image" src="https://github.com/user-attachments/assets/d4cbac43-8a3a-4974-8224-044722f22519" />
- />
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSozBW9XxdhNk2Ua4sC9f2NA1NOzCkRSxUX7LYtGosCqQ&amp;s=10" alt="Cult of the Lamb celebrates its first anniversary - Niche Gamer"/>
+
 </div>
 
 
