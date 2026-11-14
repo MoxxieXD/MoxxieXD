@@ -1,8 +1,9 @@
 ## "ok but what if...."
 
 <details>
-  <summary>Click here to see the secret text!</summary>
-  <p>Here is the text that shows up when you click it.</p>
+  <summary> information!! !</summary>
+  <p>Yo! wassup, I'm Moxxie, I am a 13-16 year old girl with audhd. I am a Russian New Zealander and am also Lesbian!
+  I am SUPERSUPER friendly and LOVE interacting with others!! I am a yumeshipper and a fictionkin too, feel free to ask about my f/os and kins, I love sharing! Do note that I am over nervous a lot and do get overwhelmed easily, I also have abandoment issues...I will get overworried if you dont talk to me within 3 days or so and may think you're ignoring me!!</p>
 </details>
 
 
