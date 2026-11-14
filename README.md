@@ -15,7 +15,7 @@
 </details>
 
 
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSozBW9XxdhNk2Ua4sC9f2NA1NOzCkRSxUX7LYtGosCqQ&amp;s=10" alt="Cult of the Lamb celebrates its first anniversary - Niche Gamer"/>
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/d9a22486-aa79-42cf-9253-cba27a742219" />
 
 </div>
 
