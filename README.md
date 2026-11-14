@@ -1,5 +1,6 @@
 ## "ok but what if...."
-
+<div align="center">
+ 
 <details>
   <summary> information!! !</summary>
   <p>Yo! wassup, I'm Moxxie, I am a 13-16 year old girl with audhd. I am a Russian New Zealander and am also Lesbian!
