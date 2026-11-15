@@ -14,6 +14,11 @@
  </p>
 </details>
 
+<details>
+  <summary> Socials !</summary>
+  <p>⋅˚₊‧ ୨୧ ‧Discord: moxxie_xd, friend requests welcome, just tell me how you found me first....Always happy to make friends! Roblox (i dont play often) - cheeseybreadcheese, spotify - MOXXIE?!₊˚ ⋅˚₊‧ ୨୧ ‧₊˚ ⋅
+ </p>
+</details>
 
 <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/cc1fe91d-1731-4324-a866-d131f1b4b827" />
 
