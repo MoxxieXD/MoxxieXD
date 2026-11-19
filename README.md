@@ -20,7 +20,7 @@
  </p>
 </details>
 
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ7RSDDMmofDekN62aWCAu1acxIpUxQf7Lc-dk-ekQ66A&amp;s=10" alt="Cult of the Lamb celebrates its first anniversary - Niche Gamer"/><img width="576" height="324" alt="image" src="https://github.com/user-attachments/assets/f629e67f-d4c8-421f-b3b4-75c3f1efe731" />
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ7RSDDMmofDekN62aWCAu1acxIpUxQf7Lc-dk-ekQ66A&amp;s=10" alt="Cult of the Lamb celebrates its first anniversary - Niche Gamer"/>
 
 
 
