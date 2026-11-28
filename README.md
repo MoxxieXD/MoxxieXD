@@ -5,7 +5,7 @@
  
 <details>
   <summary> information!! !</summary>
-  <p>⋅˚₊‧ ୨୧ ‧₊˚ ⋅ ʏᴏ! ᴡᴀꜱꜱᴜᴘ, ɪ'ᴍ ᴍᴏxxɪᴇ, ɪ ᴀᴍ ᴀ ɢɪʀʟ ᴡɪᴛʜ ᴀustism and Aᴅʜᴅ. ɪ ᴀᴍ ᴀ ʀᴜꜱꜱɪᴀɴ ɴᴇᴡ ᴢᴇᴀʟᴀɴᴅᴇʀ! ɪ ᴀᴍ ꜱᴜᴘᴇʀꜱᴜᴘᴇʀ ꜰʀɪᴇɴᴅʟʏ ᴀɴᴅ ʟᴏᴠᴇ ɪɴᴛᴇʀᴀᴄᴛɪɴɢ ᴡɪᴛʜ ᴏᴛʜᴇʀꜱ!! ɪ ᴀᴍ ᴀ ʏᴜᴍᴇꜱʜɪᴘᴘᴇʀ ᴀɴᴅ ᴀ ꜰɪᴄᴛɪᴏɴᴋɪɴ ᴛᴏᴏ, ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴀꜱᴋ ᴀʙᴏᴜᴛ ᴍʏ ꜰ/ᴏꜱ ᴀɴᴅ ᴋɪɴꜱ, ɪ ʟᴏᴠᴇ ꜱʜᴀʀɪɴɢ! ᴅᴏ ɴᴏᴛᴇ ᴛʜᴀᴛ ɪ ᴀᴍ ᴏᴠᴇʀ ɴᴇʀᴠᴏᴜꜱ ᴀ ʟᴏᴛ ᴀɴᴅ ᴅᴏ ɢᴇᴛ ᴏᴠᴇʀᴡʜᴇʟᴍᴇᴅ ᴇᴀꜱɪʟʏ!⋅˚₊‧ ୨୧ ‧₊˚ ⋅!</p>
+  <p>⋅˚₊‧ ୨୧ ‧₊˚ ⋅ ʏᴏ! ᴡᴀꜱꜱᴜᴘ, ɪ'ᴍ ᴍᴏxxɪᴇ, ɪ ᴀᴍ ᴀ ɢɪʀʟ ᴡɪᴛʜ ᴀustism and Aᴅʜᴅ. ɪ ᴀᴍ ᴀ ʀᴜꜱꜱɪᴀɴ ɴᴇᴡ ᴢᴇᴀʟᴀɴᴅᴇʀ! ɪ ᴀᴍ ꜱᴜᴘᴇʀꜱᴜᴘᴇʀ ꜰʀɪᴇɴᴅʟʏ ᴀɴᴅ ʟᴏᴠᴇ ɪɴᴛᴇʀᴀᴄᴛɪɴɢ ᴡɪᴛʜ ᴏᴛʜᴇʀꜱ!! ɪ ᴀᴍ ᴀ ʏᴜᴍᴇꜱʜɪᴘᴘᴇʀ ᴀɴᴅ ᴀ ꜰɪᴄᴛɪᴏɴᴋɪɴ ᴛᴏᴏ, ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ᴀꜱᴋ ᴀʙᴏᴜᴛ ᴍʏ ꜰ/ᴏꜱ ᴀɴᴅ ᴋɪɴꜱ, ɪ ʟᴏᴠᴇ ꜱʜᴀʀɪɴɢ! ᴅᴏ ɴᴏᴛᴇ ᴛʜᴀᴛ ɪ ᴀᴍ ᴏᴠᴇʀ ɴᴇʀᴠᴏᴜꜱ ᴀ ʟᴏᴛ ᴀɴᴅ ᴅᴏ ɢᴇᴛ ᴏᴠᴇʀᴡʜᴇʟᴍᴇᴅ ᴇᴀꜱɪʟʏ! p.s banner credit: twow09 on Twitter ⋅˚₊‧ ୨୧ ‧₊˚ ⋅!</p>
 </details>
 
 <details>
@@ -16,11 +16,12 @@
 
 <details>
   <summary> Socials !</summary>
-  <p>⋅˚₊‧ ୨୧ ‧Discord: moxxie_xd, friend requests welcome, just tell me how you found me first....Always happy to make friends! Roblox (i dont play often) - cheeseybreadcheese, spotify - MOXXIE?!₊˚ ⋅˚₊‧ ୨୧ ‧₊˚ ⋅
+  <p>⋅˚₊‧ ୨୧ ‧Discord: moxxie_xd, friend requests welcome, just tell me how you found me first....Always happy to make friends! Roblox (i dont play often) - cheeseybreadcheese, spotify -MoxxieXD₊˚ ⋅˚₊‧ ୨୧ ‧₊˚ ⋅
  </p>
 </details>
 
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQ7RSDDMmofDekN62aWCAu1acxIpUxQf7Lc-dk-ekQ66A&amp;s=10" alt="Cult of the Lamb celebrates its first anniversary - Niche Gamer"/>
+<img width="735" height="441" alt="image" src="https://github.com/user-attachments/assets/bd68496a-2b7b-4a81-a0d3-56609761233b" />
+
 
 
 
